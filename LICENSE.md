@@ -1,4 +1,4 @@
-# 
+# Get the ultimate DaVinci Resolve for PC | DaVinci Resolve for Windows addon with secure DaVinci Resolve for PC | DaVinci Resolve for Windows Addon | batch-processing + auto-cut.
 
 
 
